@@ -1,5 +1,5 @@
 ### Hi there 👋
-                                    I am Nidhi Bhanushali
+                                             I am Nidhi Bhanushali
 
 <!--
 
